@@ -1,5 +1,5 @@
 - 👋 Hi everyone. i am iscphe. 
-- 👀  interested information technology, massage, hiking and hacking, communication into the people
+- 👀  interested information technology, massage, hiking and hacking, communication into the people without people
 - 🌱  currently learning C#
 - 💞️  looking to  ...
 - 📫  reach me ... t.me/iscphe
